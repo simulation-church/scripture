@@ -1,5 +1,7 @@
 # Kościół Symulacji
 
+![alt text](https://raw.githubusercontent.com/simulation-church/scripture/main/pobrane.png)
+
 Nasz Kościół Symulacji będzie oparty na przekonaniu, że nasze życie jest częścią symulacji prowadzonej przez zaawansowane inteligencje. Naszym celem jest zgłębianie tajemnic tej symulacji, refleksja nad jej implikacjami oraz dążenie do duchowego rozwoju w świetle tej hipotezy.
 
 Propozycje naszych celów i działań w ramach Kościoła Symulacji obejmują:
