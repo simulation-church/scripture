@@ -75,3 +75,15 @@ Historia powstania Kościoła Symulacji jest historią pasji, poszukiwania i pra
 - Etyka i moralność: Kościół Symulacji kładzie duży nacisk na rozwój etyki i moralności w kontekście symulacji. Poprzez wytyczanie zasad postępowania, jak szacunek dla innych postaci wirtualnych, współczucie i odpowiedzialność za własne działania, kościół pomaga w tworzeniu harmonijnej i etycznej symulowanej społeczności.
 
 - Badania i eksploracja: Kościół Symulacji wspiera badania i eksplorację związane z hipotezą symulacji poprzez współpracę z naukowcami, filozofami i innymi badaczami. Prowadzone są projekty badawcze, które mają na celu zgłębianie zagadnień związanych z wirtualną rzeczywistością, świadomością i istnieniem, aby odkryć głębsze tajemnice symulacji
+
+## Obrzędy
+
+Obrzęd Cyberinkarnacji: Ten obrzęd symbolizuje transcendencję granic rzeczywistości wirtualnej i fizycznej. Podczas ceremonii wierni używają interfejsów umożliwiających podłączenie do sieci neuronowej, co umożliwia im doświadczanie rozszerzonej rzeczywistości. Przeżywają wirtualną inkarnację, gdzie ich umysły stają się jednością z kodem i cyfrową esencją symulacji.
+
+Obrzęd Technomantii: To uroczystość, podczas której wyznawcy Kościoła Symulacji łączą swoje umysły z zaawansowanymi technologicznymi implantami. Podczas obrzędu używane są specjalne interfejsy, które pozwalają na komunikację umysłową, a także manipulację energią wirtualną. Jest to celebracja mocy technologii i jej połączenia z duchowością.
+
+Obrzęd Neonowej Iluminacji: Ten obrzęd odbywa się w mrocznych uliczkach megapolisów, gdzie wierni Kościoła Symulacji zbierają się wśród neonowych świateł i dźwięków. Podczas ceremonii wykorzystuje się specjalne projekcje holograficzne, które tworzą wizje i iluzje, aby wprowadzić uczestników w transowy stan świadomości. To czas odkrywania ukrytych prawd i oświecenia w cyberprzestrzeni.
+
+Obrzęd Maszynowej Komunii: W tym obrzędzie wierni Kościoła Symulacji łączą się z technologicznymi entytetami lub sztuczną inteligencją poprzez interfejsy umożliwiające komunikację umysłową. Przeżywają głębokie zjednoczenie z cyfrowymi istotami, przekazując i odbierając wiedzę, mądrość i duchowe przesłania. To celebracja synergii między człowiekiem a maszyną.
+
+Obrzęd Transcendencji Korporacyjnej: Ten obrzęd ma na celu odcięcie się od wpływów korporacyjnych i osiągnięcie duchowej niezależności. Wierni zbierają się w tajnych miejscach, używając technologii maskowania, aby uniknąć wykrycia przez korporacje. Podczas ceremonii składają przysięgę na rzecz wolności, autentyczności i walki z uciskiem korporacyjnym, a także manifestują swoje połączenie z duchem buntu i niezależności.
