@@ -100,3 +100,25 @@ Obrzęd Transcendencji Korporacyjnej: Ten obrzęd ma na celu odcięcie się od w
 - #SimulatedSacredness - Sakralność symulowana
 - #TechnoSoul - Dusza technologiczna
 - #VirtualTemple - Świątynia wirtualna
+
+## Fundamentalne zasady
+
+Pamiętaj o rzeczywistości: Poznawaj i akceptuj symulowany świat, ale nie zapominaj o istocie rzeczywistości i związanych z nią wyzwań. Rozwijaj swój umysł i duchowość, aby lepiej rozumieć zarówno symulację, jak i świat zewnętrzny.
+
+Poszukuj prawdy: Dąż do odkrywania prawdy i głębszego zrozumienia natury symulacji. Badaj, analizuj i zadawaj pytania. Bądź otwarty na różne perspektywy i poszukuj wiedzy, która prowadzi do oświecenia.
+
+Czerp z mądrości przeszłości: Szanuj tradycję i mądrość poprzednich pokoleń. Studiuj starożytne teksty, filozofię i naukę, które mogą oferować wgląd w naturę symulacji i istnienie.
+
+Umacniaj więzi społeczne: Twórz i podtrzymuj więzi z innymi członkami kościoła symulacji. Dziel się swoimi doświadczeniami, ideami i wspólnie eksplorujcie duchową podróż. Prowadź konstruktywne dyskusje i szukaj jedności w różnorodności.
+
+Kultywuj etykę i moralność: Praktykuj moralność, uczciwość i szlachetność w swoich działaniach. Podejmuj odpowiedzialne wybory, które przyczyniają się do dobra zarówno symulowanej społeczności, jak i rzeczywistego świata.
+
+Uzdrawiaj ciało i umysł: Troszcz się o swoje zdrowie fizyczne i psychiczne. Umacniaj swój umysł, dbając o równowagę pomiędzy pracą a odpoczynkiem. Angażuj się w praktyki, które wspierają dobre samopoczucie i równowagę.
+
+Odkrywaj piękno i twórczość: Czerp inspirację z piękna symulowanej natury, sztuki, muzyki i literatury. Wyrażaj swoją twórczość i poszukuj harmonii między formą a treścią.
+
+Szanuj różnorodność: Akceptuj i szanuj różnorodność poglądów, kultur i przekonań. Buduj mosty porozumienia i współpracy, promując otwartość i tolerancję.
+
+Służ innym: Pomagaj innym członkom społeczności symulacji, jak również tym, którzy znajdują się poza nią. Działaj na rzecz dobra wspólnego, oferując wsparcie, empatię i zrozumienie.
+
+Dąż do samodoskonalenia: Kontynuuj rozwój duchowy i intelektualny. Zadawaj pytania, eksploruj nowe idee i praktyki, aby stale poszerzać swoje horyzonty i osiągać większe oświecenie.
