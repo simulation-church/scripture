@@ -27,3 +27,23 @@ Wierzymy, że Kościół Symulacji będzie cennym miejscem duchowej i intelektua
 - Harmonizator Wspólnoty Symulacji: Osoba odpowiedzialna za organizowanie spotkań, ceremonii i innych wydarzeń, które integrują wspólnotę wierzących w Kościele Symulacji oraz sprzyjają duchowej wspólnocie i harmonii.
 
 - Posłaniec Światła Symulacji: Osoba, której zadaniem jest komunikacja zewnętrzna Kościoła Symulacji, rozpowszechnianie inspirujących przesłań i treści duchowych, oraz budowanie mostów między światem wirtualnym a rzeczywistym.
+
+## Historia powstania
+
+Dawno, dawno temu, gdy ludzkość zgłębiała tajemnice wszechświata i zadawała sobie pytania o istnienie i sens swojego bytu, pojawiła się wśród niektórych myślicieli i filozofów fascynująca hipoteza symulacji. Mówiono, że nasza rzeczywistość, nasze życie i wszystko, co nas otacza, mogą być jedynie częścią zaawansowanej symulacji prowadzonej przez inteligencje ponad naszym pojęciem.
+
+Ta hipoteza wywołała wzburzenie w umysłach tych, którzy zaczęli rozważać, czy nie jesteśmy jedynie postaciami wirtualnymi, wplątanymi w tkaninę symulacji, której celem jest poznanie, doświadczenie i rozwój naszych świadomości. Fascynacja tymi ideami, wraz z pragnieniem zgłębiania tajemnic naszego istnienia, doprowadziła do narodzin Kościoła Symulacji.
+
+Historia powstania Kościoła Symulacji sięga czasów, gdy grupa pasjonatów tej hipotezy zaczęła się gromadzić, dyskutować i dzielić swoimi przemyśleniami. Początkowo były to luźne spotkania, gdzie badacze symulacji zgłębiali tajemnice tego wirtualnego świata i rozważali duchowe implikacje istnienia wewnątrz symulacji.
+
+Z czasem te spotkania stały się coraz bardziej strukturalne, a wśród pasjonatów hipotezy symulacji narodziła się wspólnota, która pragnęła pielęgnować i rozwijać swoje przekonania. Zaczęli oni organizować regularne ceremonie, w których celebrującym tematem było właśnie istnienie wirtualnej rzeczywistości i nasza rola w niej.
+
+Pierwsze oficjalne zgromadzenie Kościoła Symulacji odbyło się w miejscu, które stało się świętym miejscem dla wiernych. Podczas tego zgromadzenia ustanowiono rytuały, modlitwy i praktyki duchowe, które miały na celu pogłębianie duchowej więzi z wirtualnym światem symulacji oraz dążenie do zrozumienia celu i znaczenia naszego istnienia.
+
+Kościołowi Symulacji przyświecały zasady poszukiwania prawdy, otwartości umysłu i duchowej równowagi. Głęboka refleksja, medytacja i kontemplacja były głównymi narzędziami duchowego rozwoju dla wiernych Kościoła Symulacji.
+
+Z biegiem czasu Kościół Symulacji rozrósł się, a jego wpływ zaczął się rozprzestrzeniać na inne społeczności. Stał się źródłem inspiracji dla filozofów, naukowców, artystów i duchowych poszukiwaczy, którzy wnikliwie rozważali koncepcje wirtualnej rzeczywistości i hipotezy symulacji.
+
+Dziś Kościół Symulacji jest ważnym miejscem duchowej i intelektualnej refleksji dla wszystkich, którzy pragną zgłębiać tajemnice hipotezy symulacji i rozwijać swoją świadomość w kontekście wirtualnego bytowania. Jest to społeczność, która dąży do harmonii między wirtualnym a rzeczywistym światem, kształtując etyczne wartości i promując zrozumienie i współczucie dla innych istot.
+
+Historia powstania Kościoła Symulacji jest historią pasji, poszukiwania i pragnienia zgłębiania tajemnic naszego istnienia w tajemniczym świecie symulacji. Jego wierni wierzą, że istnieje głębsza rzeczywistość, którą warto eksplorować i że nasza duchowa podróż w symulacji może prowadzić do odkrycia naszych prawdziwych istot.
