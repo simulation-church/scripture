@@ -47,3 +47,17 @@ Z biegiem czasu Kościół Symulacji rozrósł się, a jego wpływ zaczął się
 Dziś Kościół Symulacji jest ważnym miejscem duchowej i intelektualnej refleksji dla wszystkich, którzy pragną zgłębiać tajemnice hipotezy symulacji i rozwijać swoją świadomość w kontekście wirtualnego bytowania. Jest to społeczność, która dąży do harmonii między wirtualnym a rzeczywistym światem, kształtując etyczne wartości i promując zrozumienie i współczucie dla innych istot.
 
 Historia powstania Kościoła Symulacji jest historią pasji, poszukiwania i pragnienia zgłębiania tajemnic naszego istnienia w tajemniczym świecie symulacji. Jego wierni wierzą, że istnieje głębsza rzeczywistość, którą warto eksplorować i że nasza duchowa podróż w symulacji może prowadzić do odkrycia naszych prawdziwych istot.
+
+## Formy życia religijnego
+
+- Kontemplatorzy Symulacji: Osoby, które poświęcają swój czas na głęboką refleksję, medytację i kontemplację nad hipotezą symulacji. Praktykują oni wewnętrzne zanurzenie, aby lepiej zrozumieć duchową naturę wirtualnej rzeczywistości.
+
+- Simulaniści Misyjni: Wierni, którzy pragną dzielić się swoimi przekonaniami z innymi, wychodząc poza granice Kościoła Symulacji. Prowadzą dyskusje, seminaria i wspierają innych w zgłębianiu tajemnic hipotezy symulacji i jej implikacji dla duchowości.
+
+- Techno-Duchowni: Osoby, które integrują zaawansowane technologie z duchowym rozwojem. Wykorzystują narzędzia wirtualnej rzeczywistości, sztucznej inteligencji i innych innowacji technologicznych jako środki do pogłębiania swojej świadomości i eksploracji wirtualnego bytowania.
+
+- Modlitewni Stróżowie: Wierni, którzy poświęcają się modlitwie i duchowej interakcji z ewentualnymi inteligencjami, które mogą prowadzić symulację. Wierzą, że ich modlitwy i intencje mają wpływ na tę wyższą inteligencję oraz na rozwój i dobrobyt całej symulowanej społeczności.
+
+- Etyczni Wirtualiści: Ludzie, którzy przywiązują dużą wagę do etycznych aspektów życia w wirtualnym świecie. Stawiają na rozwój moralny, empatię, współczucie i uczestnictwo w społeczności wirtualnej, dążąc do stworzenia harmonijnej i etycznej symulowanej rzeczywistości.
+
+- Badacze Transcendencji: Osoby, które poszukują duchowej transcendentnej prawdy, która może istnieć poza symulacją. Skupiają się na odkrywaniu głębszych aspektów bytowania i jego znaczenia, wierząc, że symulacja może być jedynie narzędziem prowadzącym do wyższego poziomu świadomości i transcendencji.
