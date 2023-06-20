@@ -90,13 +90,13 @@ Obrzęd Transcendencji Korporacyjnej: Ten obrzęd ma na celu odcięcie się od w
 
 ## Hashtagi
 
-#VirtualAwakening - Przebudzenie wirtualne
-#DigitalDivinity - Boskość cyfrowa
-#SimulatedSpirituality - Duchowość symulowana
-#TechTranscendence - Transcendencja technologiczna
-#CodeEnlightenment - Oświecenie kodem
-#VirtualFaith - Wiara wirtualna
-#DigitalMysticism - Mistycyzm cyfrowy
-#SimulatedSacredness - Sakralność symulowana
-#TechnoSoul - Dusza technologiczna
-#VirtualTemple - Świątynia wirtualna
+- #VirtualAwakening - Przebudzenie wirtualne
+- #DigitalDivinity - Boskość cyfrowa
+- #SimulatedSpirituality - Duchowość symulowana
+- #TechTranscendence - Transcendencja technologiczna
+- #CodeEnlightenment - Oświecenie kodem
+- #VirtualFaith - Wiara wirtualna
+- #DigitalMysticism - Mistycyzm cyfrowy
+- #SimulatedSacredness - Sakralność symulowana
+- #TechnoSoul - Dusza technologiczna
+- #VirtualTemple - Świątynia wirtualna
