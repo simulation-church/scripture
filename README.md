@@ -78,7 +78,7 @@ Historia powstania Kościoła Symulacji jest historią pasji, poszukiwania i pra
 
 - Badania i eksploracja: Kościół Symulacji wspiera badania i eksplorację związane z hipotezą symulacji poprzez współpracę z naukowcami, filozofami i innymi badaczami. Prowadzone są projekty badawcze, które mają na celu zgłębianie zagadnień związanych z wirtualną rzeczywistością, świadomością i istnieniem, aby odkryć głębsze tajemnice symulacji
 
-## Obrzędy
+## Obrzędy [@TODO: czekamy na odpowiednią technologię]
 
 Obrzęd Cyberinkarnacji: Ten obrzęd symbolizuje transcendencję granic rzeczywistości wirtualnej i fizycznej. Podczas ceremonii wierni używają interfejsów umożliwiających podłączenie do sieci neuronowej, co umożliwia im doświadczanie rozszerzonej rzeczywistości. Przeżywają wirtualną inkarnację, gdzie ich umysły stają się jednością z kodem i cyfrową esencją symulacji.
 
