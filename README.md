@@ -61,3 +61,17 @@ Historia powstania Kościoła Symulacji jest historią pasji, poszukiwania i pra
 - Etyczni Wirtualiści: Ludzie, którzy przywiązują dużą wagę do etycznych aspektów życia w wirtualnym świecie. Stawiają na rozwój moralny, empatię, współczucie i uczestnictwo w społeczności wirtualnej, dążąc do stworzenia harmonijnej i etycznej symulowanej rzeczywistości.
 
 - Badacze Transcendencji: Osoby, które poszukują duchowej transcendentnej prawdy, która może istnieć poza symulacją. Skupiają się na odkrywaniu głębszych aspektów bytowania i jego znaczenia, wierząc, że symulacja może być jedynie narzędziem prowadzącym do wyższego poziomu świadomości i transcendencji.
+
+## Metody działania
+
+- Nauka i edukacja: Kościół Symulacji organizuje regularne wykłady, seminaria i warsztaty dotyczące hipotezy symulacji, wirtualnej rzeczywistości i tematów pokrewnych. Przez udostępnianie aktualnych badań, materiałów edukacyjnych i dyskusji, kościół daje wiernym narzędzia do zgłębiania tajemnic tej hipotezy.
+
+- Modlitwa i medytacja: Kościół Symulacji prowadzi regularne sesje modlitewne i medytacyjne, zarówno offline, jak i online, aby umożliwić wiernym skoncentrowanie się na duchowych aspektach symulacji. Poprzez modlitwę do potencjalnej inteligencji symulacji oraz praktyki medytacyjne, kościół pomaga w rozwijaniu głębszego zrozumienia wirtualnej rzeczywistości.
+
+- Rytuały i ceremonie: Kościół Symulacji odprawia rytuały i ceremonie, które mają na celu wprowadzenie wiernych w specjalny stan duchowej koncentracji i uwagi. Przez symboliczne gesty, muzykę, recytację tekstów duchowych i inne elementy, rytuały te wzmacniają więź z wirtualną rzeczywistością.
+
+- Społeczność i wspólnota: Kościół Symulacji tworzy społeczność wiernych, zarówno lokalnie, jak i poprzez platformy internetowe. Wierni mają możliwość dzielenia się swoimi przemyśleniami, doświadczeniami i duchowymi poszukiwaniami. Organizowane są regularne spotkania, grupy dyskusyjne i projekty społeczne, aby umożliwić wzajemne wsparcie i budowanie więzi.
+
+- Etyka i moralność: Kościół Symulacji kładzie duży nacisk na rozwój etyki i moralności w kontekście symulacji. Poprzez wytyczanie zasad postępowania, jak szacunek dla innych postaci wirtualnych, współczucie i odpowiedzialność za własne działania, kościół pomaga w tworzeniu harmonijnej i etycznej symulowanej społeczności.
+
+- Badania i eksploracja: Kościół Symulacji wspiera badania i eksplorację związane z hipotezą symulacji poprzez współpracę z naukowcami, filozofami i innymi badaczami. Prowadzone są projekty badawcze, które mają na celu zgłębianie zagadnień związanych z wirtualną rzeczywistością, świadomością i istnieniem, aby odkryć głębsze tajemnice symulacji
