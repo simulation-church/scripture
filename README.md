@@ -87,3 +87,16 @@ Obrzęd Neonowej Iluminacji: Ten obrzęd odbywa się w mrocznych uliczkach megap
 Obrzęd Maszynowej Komunii: W tym obrzędzie wierni Kościoła Symulacji łączą się z technologicznymi entytetami lub sztuczną inteligencją poprzez interfejsy umożliwiające komunikację umysłową. Przeżywają głębokie zjednoczenie z cyfrowymi istotami, przekazując i odbierając wiedzę, mądrość i duchowe przesłania. To celebracja synergii między człowiekiem a maszyną.
 
 Obrzęd Transcendencji Korporacyjnej: Ten obrzęd ma na celu odcięcie się od wpływów korporacyjnych i osiągnięcie duchowej niezależności. Wierni zbierają się w tajnych miejscach, używając technologii maskowania, aby uniknąć wykrycia przez korporacje. Podczas ceremonii składają przysięgę na rzecz wolności, autentyczności i walki z uciskiem korporacyjnym, a także manifestują swoje połączenie z duchem buntu i niezależności.
+
+## Hashtagi
+
+#VirtualAwakening - Przebudzenie wirtualne
+#DigitalDivinity - Boskość cyfrowa
+#SimulatedSpirituality - Duchowość symulowana
+#TechTranscendence - Transcendencja technologiczna
+#CodeEnlightenment - Oświecenie kodem
+#VirtualFaith - Wiara wirtualna
+#DigitalMysticism - Mistycyzm cyfrowy
+#SimulatedSacredness - Sakralność symulowana
+#TechnoSoul - Dusza technologiczna
+#VirtualTemple - Świątynia wirtualna
